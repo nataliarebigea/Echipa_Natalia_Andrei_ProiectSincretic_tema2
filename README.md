@@ -1,0 +1,1 @@
+# Echipa_Natalia_Andrei_ProiectSincretic_tema2
